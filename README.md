@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CORC740207MSLRMR09
+CORC740207MSLRMR09
